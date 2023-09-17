@@ -1,2 +1,5 @@
 # Cubix-Studios
-Full Description coming soon.
+Full Description coming soon. (4 months ago)
+
+-- NEW UPDATE (4 months later) :
+Hi everyone! I would like to make a quick announcement. Cubix studios has unfortunately discontinued. Here's are why: The developers that were going to help contribute, code and help out the game development studio to make a game have not been interested anymore. Cubix studios has been around for almost a half of a year, but like they say, "Everything eventually comes to an end.". I would like to thank everyone who sponsored the Cubix studios game development group, (all the money sponsored will be given back to the sponsors), and everyone who was cheering on in our journey and support. It's been a pleasure founding Cubix studios and I have made many good memories with all my friends, (the developers). Thank you everyone for all your support and taking your time to read this rushed announcement. For now you can support my new project called, https://github.com/rockettoad/untitled-roblox-game-repository, this will be the new project I will be working on. If anyone has or would like to ask any questions, Don't hesitate to DM me! No matter what my status says, you can always feel free to DM me! I will, at most, respond to you the next day or a few hours later. Have a good day everyone and again, thank you for all the support!
